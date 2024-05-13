@@ -47,9 +47,5 @@ o formato do roteiro deve ser
 ## 🚀 Resultados
 
 
-https://github.com/Samuelalesxandro/podcast-avatar/assets/162049304/4f63bae3-f26c-4ea2-90af-66bf84c6d143
-
-
-
 ## 💭 Reflexão (Opcional)
 Muito bom voce passear pelas IAs é muito bom é uma experiencia surreal 
